@@ -10,20 +10,30 @@ reprendre l’exploitation familiale.
 - Depuis 2009 : 
 o Aide à la gestion de l’exploitation familiale en polyculture - élevage, 
 agriculture raisonnée (110 hectares).
+
 o Travaux agricoles : semailles, moisson, labours, entretien des 
-machines/soin aux animaux (80 limousines allaitantes).
+machines, soin aux animaux (80 limousines allaitantes).
+
 o Travaux forestiers : gestion, abattage, exploitation de 10 hectares.
+
 o Aide à la réflexion sur le projet de reconversion de l’exploitation en 
 BIO.
+
 o Visites au Salon de l’Agriculture (Belgique, France).
+
 - 2017-2018 :
+
 o Animateur nature pour les Scouts de Athus en Belgique.
+
 ### Autres expérience
 - 2014-2015 et 2015-2016 :
+
 o Découverte du métier de pharmacien au sein de la pharmacie 
 familiale durant les stages de 3ème et 2nde (étiquetage, rangement, 
 observation).
+
 - 2015-2016 et 2016-2017 :
+
 o Stages volontaires linguistiques en Angleterre et en Allemagne.
 
 ## FORMATION
