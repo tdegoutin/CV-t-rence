@@ -1,4 +1,5 @@
 # Térence Degoutin
+![Texte alternatif](phototerencecopy)
 ## OBJECTIFS
 Intégrer la 2ème année de la formation ingénieur en Agronomie du réseau 
 UniLaSalle à Beauvais dans le but de travailler dans le monde agricole et/ou
